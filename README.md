@@ -227,4 +227,4 @@ Fall Guys is available as a complete free version, with all features and updates
 Don't miss out on the fun! **Download Fall Guys free** today and jump into the wildest multiplayer experience!
 
 ---
-**Last updated:** 2026-09-18 14:45:44 UTC
+**Last updated:** 2026-09-18 18:03:13 UTC
